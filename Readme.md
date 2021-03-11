@@ -1,0 +1,2 @@
+There was An Astronaut Who went in space but while returning he lost his way and was going in a way which had many asteroids and shipwrecks, But luckily he had the things to shoot them and destroy them, In This Game You Have To Save Him From The Asteroids
+After you Came Out Of The Asteroid Belt Some Aliens Attacked U!
